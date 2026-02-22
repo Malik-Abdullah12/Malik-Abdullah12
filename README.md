@@ -1,7 +1,7 @@
 👋 Malik Abdullah
 
 🎓 BSCS Undergraduate at Mohammad Ali Jinnah University (MAJU)
-📍 Karachi, Pakistan | 🎂 21
+📍 Karachi, Pakistan
 
 💡 About Me
 
