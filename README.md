@@ -1,5 +1,3 @@
-# Malik-Abdullah12.
-
 👋 Malik Abdullah
 
 🎓 BSCS Undergraduate at Mohammad Ali Jinnah University (MAJU)
